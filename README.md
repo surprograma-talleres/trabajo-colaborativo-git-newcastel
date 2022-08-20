@@ -1,7 +1,7 @@
 🌐 ¡Hello world!
 
 
-👋 Me llamo PEPE
-🗺️ y actualmente estoy en arcadia.
+👋 Me llamo Pinchi
+🗺️ y actualmente estoy en Bariloche .
 
-📆 En los próximos días
+📆 En los próximos días qcyo
