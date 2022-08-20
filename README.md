@@ -1,7 +1,7 @@
 🌐 ¡Hello world!
 
 
-👋 Me llamo Cami
-🗺️ y actualmente estoy en _COMPLETAR_.
+👋 Me llamo claudio
+🗺️ y actualmente estoy en mi silla, con un cafe.
 
-📆 En los próximos días, me gustaría _COMPLETAR_.
+📆 En los próximos días, me gustaría irma jaja.
