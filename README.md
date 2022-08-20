@@ -1,7 +1,7 @@
-🌐 ¡Hola mundo!
+🌐 ¡Hello world!
 
 
-👋 Me llamo Cami Berto
-🗺️ y actualmente me quiero ir a Japón
+👋 Me llamo PEPE
+🗺️ y actualmente estoy en arcadia.
 
-📆 En los próximos días, me tomo un fernet 
+📆 En los próximos días
