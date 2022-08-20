@@ -1,7 +1,7 @@
 🌐 ¡Hello world!
 
 
-👋 Me llamo Pinchi
-🗺️ y actualmente estoy en Bariloche .
+👋 Me llamo PEPE
+🗺️ y actualmente estoy en arcadia.
 
-📆 En los próximos días, me gustaría ROMPERLO.
+📆 En los próximos días, me gustaría ser una ameba.
