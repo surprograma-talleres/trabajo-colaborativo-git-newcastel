@@ -1,7 +1,7 @@
 🌐 ¡Hello world!
 
 
-👋 Me llamo PEPE
-🗺️ y actualmente estoy en arcadia.
+👋 Me llamo Clau
+🗺️ y actualmente estoy en sudafrica.
 
-📆 En los próximos días, me gustaría ROMPERLO.
+📆 En los próximos días, me gustaría ser una ameba.
