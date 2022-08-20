@@ -1,7 +1,7 @@
 🌐 ¡Hello world!
 
 
-👋 Me llamo PEPE
-🗺️ y actualmente estoy en arcadia.
+👋 Me llamo Ferne
+🗺️ y actualmente estoy en Dinamarca.
 
-📆 En los próximos días, me gustaría ser una ameba.
+📆 En los próximos días, me gustaría ser un pez.
