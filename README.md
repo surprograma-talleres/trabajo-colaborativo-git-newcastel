@@ -1,7 +1,7 @@
-🌐 ¡Hello world!
+🌐 ¡Hola mundo!
 
 
-👋 Me llamo claudio
-🗺️ y actualmente estoy en mi silla, con un cafe.
+👋 Me llamo Cami Berto
+🗺️ y actualmente me quiero ir a Japón
 
-📆 En los próximos días, me gustaría irma jaja.
+📆 En los próximos días, me tomo un fernet 
