@@ -1,6 +1,7 @@
-🌐 ¡Hola mundo!
+🌐 ¡Hello world!
 
-👋 Me llamo _COMPLETAR_
-🗺️ y actualmente estoy en _COMPLETAR_.
 
-📆 En los próximos días, me gustaría _COMPLETAR_.
+👋 Me llamo Claro
+🗺️ y actualmente estoy en Dinamarca.
+
+📆 En los próximos días, me gustaría ser un pez.
